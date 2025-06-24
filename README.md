@@ -1,7 +1,7 @@
 <h2>Grab4K官网，专注4K蓝光原盘影视资源下载网站</h2>
 <p>Grab4K是一个集电影、电视剧、动漫、演唱会等4K蓝光原盘资源于一体的影视下载站点。其特点在于无广告干扰、界面简洁美观，为用户提供了一个干净舒适的浏览体验。此外，该平台几乎涵盖了所有类型的4K蓝光资源，包括经典电影的2K、4K甚至2K+60帧版本，满足了不同用户的多样化需求。Grab4K还支持多种下载方式，如BT种子、磁力链接和115网盘链接，方便用户灵活选择下载方式。</p>
 <p><strong>一键访问：</strong><a href="https://www.ggonav.com/sites/5828.html " target="_blank"><strong>Grab4K最新网址</strong></a></p>
-<p><strong>一键访问：</strong><a href="https://pan.quark.cn/s/0db22432c259" target="_blank"><strong>⏬经典电影/无损音乐</strong></a></p>
+<p><strong>一键访问：</strong><a href="https://wangpanziyuan.pages.dev/" target="_blank"><strong>电子书/电影/音乐/漫画/游戏下载</strong></a></p>
 <p><strong>一键访问：</strong><a href="http://ip.harmonylink.net/share/e82025" target="_blank"><strong>海外代理网络·可看蓝光4K影视</strong></a></p>
 <p><strong>功能特点：</strong></p>
 <ol>
